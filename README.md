@@ -50,7 +50,7 @@ Aberto a conversas sobre dados e novas oportunidades. O canal mais rápido é o 
 ---
 
 <details>
-<summary><b>🇬🇧 English summary</b></summary>
+<summary><b>English summary</b></summary>
 
 <br>
 
